@@ -1,1 +1,1 @@
-# nurulhidayah
+Haloo, saya Nurul Hidayah mahasiswi semester 2 Prodi Geofisika di Universitas Gadjah Mada. Lahir di Magetan, Jawa Timur dan hingga saat ini tidak pernah pindah dari kota kelahiran. Aktivitas yang saya lakukan di tengah padatnya perkuliahan adalah menulis dan membaca. Bagi saya dua hal tersebut bisa membawa angin segar untuk menenangkan isi kepala. 
